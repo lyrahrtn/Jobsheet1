@@ -14,3 +14,4 @@
 ![alt text](https://github.com/lyrahrtn/Jobsheet1/blob/master/10.PNG)
 ![alt text](https://github.com/lyrahrtn/Jobsheet1/blob/master/14.PNG)
 ![alt text](https://github.com/lyrahrtn/Jobsheet1/blob/master/3.PNG)
+![alt text](https://github.com/lyrahrtn/Jobsheet1/blob/master/16.PNG)
